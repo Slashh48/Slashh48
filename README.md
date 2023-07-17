@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Slashh48
-- 👀 I’m interested in... you name it, I'm interested in it!! Computers, Cars, Biology, Chemistry, Movies, Videogames...
+- Evo zivim u Subotica gradu, zivim, radim, a i samo radiiiim.
 
 
 <!---
