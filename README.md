@@ -1,4 +1,4 @@
-Evo zivim u Subotica gradu, zivim, radim, a i samo radiiiim.
+Evo zivim u Subotica graduuUu, zivim, radim, a i samo radiiiIIim.
 
 
 <!---
