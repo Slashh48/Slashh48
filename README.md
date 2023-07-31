@@ -1,5 +1,4 @@
-Evo zivim u Subotica graduuUu, zivim, radim, a i samo radiiiIIim.
-
+Never stop learning - since 1996.
 
 <!---
 Slashh48/Slashh48 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
